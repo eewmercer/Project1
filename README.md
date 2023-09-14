@@ -1,4 +1,4 @@
 # Assignment 6
 
-*Added by: Lizzie Burton*
+*Added by: Elizabeth Burton*
 *Added name by: Emmaline Mercer*
